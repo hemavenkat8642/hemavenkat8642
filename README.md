@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **nagateja.21mic7183@vitapstudent.ac.in**
 
-- 📄 Know about my experiences [here](https://drive.google.com/file/d/1A4B1PdvfpM_j9zEYIcCPQ9GFPhGGr7ZH/view?usp=sharing)
+- 📄 Know about my experiences [here](https://drive.google.com/file/d/19-NJfqOgQplMrzI0OHKq9lYJH-pTvVIv/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
